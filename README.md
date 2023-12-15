@@ -3,7 +3,7 @@ Get ready we have something coming that is going to blow you away. Below is a sn
 
 Interested with tiktokshop.my domain?
 
-email us at: admin@tiktokshop.my 
+email us at: **admin@tiktokshop.my** 
 
 Disclaimer: The domain "tiktokshop.my" is not part of TikTok. This domain is owned by a third party and is not affiliated with TikTok. 
 
