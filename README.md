@@ -6,3 +6,5 @@ Interested with tiktokshop.my domain?
 email us at: admin@tiktokshop.my 
 
 Disclaimer: The domain "tiktokshop.my" is not part of TikTok. This domain is owned by a third party and is not affiliated with TikTok. 
+
+[CLICK HERE](https://www.tiktok.my/info)
